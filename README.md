@@ -45,15 +45,6 @@ Trading Conditions :
 - Execution Speed: Fast with minimal slippage
 - 24/5 Customer Support – Available via live chat, email, and phone.
 
-  | **Asset** | **details** | 
-|-------------| -------------- | 
-| Minimum Deposit | $250 | 
-| Leverage | Up to 1:500 | 
-| Spread Type | Variable | 
-| Trading Instruments | Forex, commodities, indices, crypto CFDs  | 
-| Execution Model | Web-based & Mobile | 
-| Deposit & Withdrawal Methods | Bank transfer, Credit/Debit cards, E-wallets |
-
 Despite offering these assets, the trading conditions lack transparency, making it difficult to develop a solid strategy.
 
 Suxxess FX Scam Concerns: While my experience has been mostly positive, some traders have reported delayed withdrawals and slow customer service responses. These are not necessarily signs of a scam but rather operational inefficiencies that the broker should work on improving.
@@ -72,8 +63,11 @@ Trustpilot Reviews on Capplace
 -----------------
 
 To get a broader perspective, I checked Trustpilot reviews to see what other traders were saying about Capplace:
+
 💬 Samantha L. (⭐ 3/5) – "The trading platform works fine, but the withdrawal delays are frustrating. I eventually got my money, but it took way longer than expected."
+
 💬 Nirmal D. (⭐ 5/5) – "Wow, Absolutrly great trading platform.I've been using Capplace for a few months, and i'm impressesd with the variety of business opportunities available. The platform is straighforward and very user- friendly, Thanks."
+
 💬 Frances (⭐ 1/5) – "WOW, Absolutely great platform Capplace is a very easy to use platform that has helped me find some great business partners. Customer support is also quick and I am very satisfied. thanks"
 
 Final Verdict – Is Capplace a Scam in 2025?
