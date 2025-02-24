@@ -47,7 +47,7 @@ Trading Conditions :
 
 Despite offering these assets, the trading conditions lack transparency, making it difficult to develop a solid strategy.
 
-Suxxess FX Scam Concerns: While my experience has been mostly positive, some traders have reported delayed withdrawals and slow customer service responses. These are not necessarily signs of a scam but rather operational inefficiencies that the broker should work on improving.
+Capplace Scam Concerns: While my experience has been mostly positive, some traders have reported delayed withdrawals and slow customer service responses. These are not necessarily signs of a scam but rather operational inefficiencies that the broker should work on improving.
 
 
 
@@ -70,8 +70,6 @@ To get a broader perspective, I checked Trustpilot reviews to see what other tra
 
 💬 Frances (⭐ 1/5) – "WOW, Absolutely great platform Capplace is a very easy to use platform that has helped me find some great business partners. Customer support is also quick and I am very satisfied. thanks"
 
-Final Verdict – Is Capplace a Scam in 2025?
-After testing Capplace in 2025, I cannot recommend this broker due to major concerns over withdrawals, poor customer support, and unclear trading conditions. While some users may have a decent experience, the risk is too high for serious traders.
 
 **Pros & Cons of Capplace in 2025**:
 **Pros**
